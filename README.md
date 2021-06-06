@@ -1,0 +1,1 @@
+# 10-richest-people
